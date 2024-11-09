@@ -1,4 +1,5 @@
 # AIMBOT-E-WALL-HACKER-PARA-MTA
 NOVO AIMBOT PARA MTA GRATIS - AIMBOT/ESP - MISC - [MTA:SA] FREE 🚀
 
-LINK https://mega.nz/folder/zbZgGYqA#V_MxCgOqWByBxV1VQ2AOxg 
+VEJA COMO E https://youtu.be/tm_HOGT4IlE?si=fyxCnWfauSP6HxOu
+LINK PARA BAIXAR https://mega.nz/folder/zbZgGYqA#V_MxCgOqWByBxV1VQ2AOxg 
